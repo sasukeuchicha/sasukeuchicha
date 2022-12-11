@@ -3,7 +3,7 @@
 
 - 👨‍💻 All of my projects are available at [https://sasukeuchicha.github.io/](https://sasukeuchicha.github.io/)
 
-- 📫 How to reach me **kjayanth807@gmail.com**
+- 📫 How to reach me **jayanthmain@gmail.com**
 
 - 📄 Know about my experiences [https://sasukeuchicha.github.io/](https://sasukeuchicha.github.io/)
 
